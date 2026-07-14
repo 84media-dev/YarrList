@@ -4,7 +4,7 @@ https://yarrlist.net/
 
 # Backups:
 
-https://piradex.net/
+https://piradex.com/
 
 https://yarrlist.xyz/
 
